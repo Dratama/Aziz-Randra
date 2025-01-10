@@ -1,0 +1,2 @@
+# Aziz-Randra
+lirik lagu
